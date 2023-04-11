@@ -1,1 +1,1 @@
-Yo, what's up, I have not much to say except that I am funky and go by she/They.
+Not working on a lot of projects, though I'm trying my best. I think.
